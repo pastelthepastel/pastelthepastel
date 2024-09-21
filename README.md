@@ -4,6 +4,7 @@
 - 📫 Reach me on gmxpcris@gmail.com or Discord: logonpastel (I am also sometimes active on ##chat and ##furry on irc libera.chat with the name "xpcris".)
 - 😄 Pronouns: he/they
 - ⚡ Fun fact: I freaking love antennas 📡
+- 🇧🇷 I'm from Brazil!
 
 <!---
 pastelthepastel/pastelthepastel is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
